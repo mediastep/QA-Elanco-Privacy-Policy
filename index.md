@@ -1,5 +1,3 @@
-Sup-Tai-Privacy-Policy
-
 ĐIỀU KHOẢN DỊCH VỤ CHUNG VÀ CHÍNH SÁCH BẢO MẬT
 
 ĐIỀU 1: ĐIỀU KHOẢN VỀ TÀI KHOẢN NGƯỜI SỬ DỤNG
